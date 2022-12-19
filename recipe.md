@@ -2,6 +2,9 @@
 ### This is an indulgent sandwich guaranteed to please! It takes about 15 mins to make and is so worth it!If you can oyster mushrooms are our favourite and if you compress them with a clean pan it encourages more evaporation and browning for a total flavour bomb of a sandwich!
 
 _INGREDIENTS_  
+ * extra ingredient 1
+ * some apples
+ * and a banana 
  * 100 g brussel sprouts
  * 150 g Oyster mushrooms
  * 4 tbsp gravy
